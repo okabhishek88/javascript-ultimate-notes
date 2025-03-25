@@ -11,6 +11,10 @@ This is just the beginning! New **JavaScript content** will be added soon to kee
 
 ![Image](https://github.com/user-attachments/assets/be16239a-8eda-40e9-a8a7-00793969fbc2)
 
+![Image](https://github.com/user-attachments/assets/355cf653-520a-458e-a1a6-3c09d57e14ed)
+
+![Image](https://github.com/user-attachments/assets/ffbc326a-6f73-4c2f-99ca-ca026c735692)
+
 ![Image](https://github.com/user-attachments/assets/ac3c2f05-828a-465f-89b2-967ac01a433b)
 
 Check it out, and let's continue learning and growing together! 💥
